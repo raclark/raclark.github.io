@@ -13,7 +13,7 @@ I have completed an Archaeological field school at the Henry House in Oshawa, an
 
 I'm also developing into something of a language buff. While I currently only speak English fluently, I have been working on Mandarin as well as German in recent months. In addition, I've begun work on a constructed language that I'll be putting major work into in the next year. 
 
-This constructed language (Keeyom), is being developed concurrently with a fictional history of a culture which will have spoken this language. I will be participating in National Novel Writing Month this year, and will be using the opportunity to flesh out the world in which my culture and language exists. Writing is another one of my passions, and I've been a member of a writing group for the better part of a decade.
+This constructed language (Keeyom) is being developed concurrently with a fictional history of a culture which will have spoken this language. I will be participating in National Novel Writing Month this year, and will be using the opportunity to flesh out the world in which my culture and language exists. Writing is another one of my passions, and I've been a member of a writing group for the better part of a decade.
 
 I love to tie my interests together, especially when it allows me to improve my writing. As such, I'm always enthusiastic to learn. It helps drive my passions, and engages me further in my projects.
 
