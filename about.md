@@ -19,6 +19,6 @@ I love to tie my interests together, especially when it allows me to improve my 
 
 # Contact
 
-If you would like to get in touch with please email me at [robertclark@trentu.ca.ca][1].
+If you would like to get in touch with please email me at [robertclark@trentu.ca][1].
 
 [1]: mailto:robertclark@trentu.ca
