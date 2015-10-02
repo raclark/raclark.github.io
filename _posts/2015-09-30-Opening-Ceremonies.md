@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "Opening Ceremonies"
-description: "In Which I Make a Test Post for my New Writing Site"
+description: In Which I Make a Test Post for my New Writing Site
 ---
 "Huzzah!" I cried, as my website went live. Writing folders! Resumes! An about me section! Oh goodness, this was all quite exciting. I've got things looking progressively more professional, and I'm committing to developing Keeyom and gosh darnit I'm talking about doing NaNoWriMo!
 
