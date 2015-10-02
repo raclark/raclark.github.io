@@ -5,11 +5,11 @@ permalink: /
 ---
 # About
 
-My Name is Robert Clark. I'm an Anthropology student at Trent University's Durham campus, and I currently live in Whitby, Ontario.
+My Name is Robert Clark. I'm an Anthropology student at Trent University's Durham campus, and I live in Whitby, Ontario.
 
-I'm currently in the process of obtaining my undergraduate degree. As such, I'm still in the process of narrowing down my interests and passions to a few major avenues of study. Currently, my major interests lay down the roads of Archaeology, Linguistic Anthropology, as well as Linguistics in general.
+I'm currently in the process of obtaining my undergraduate degree. As such, I'm still in the process of narrowing down my interests and passions to a few major avenues of study. Right now, my major interests lay down the roads of Archaeology, Linguistic Anthropology, as well as Linguistics in general.
 
-I have completed an Archaeological field school at the Henry House in Oshawa, and am currently engaged in lab work analyzing our finds. Between this and my classes, It's been driving me steadily towards what may end up being an exciting career in Archaeology.
+I have completed an Archaeological field school at the Henry House in Oshawa, Ontario, and am currently engaged in lab work analyzing our finds. Between this and my classes, It's been driving me steadily towards what may end up being an exciting career in Archaeology.
 
 I'm also developing into something of a language buff. While I currently only speak English fluently, I have been working on Mandarin as well as German in recent months. In addition, I've begun work on a constructed language that I'll be putting major work into in the next year. 
 
